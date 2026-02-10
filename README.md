@@ -1,4 +1,7 @@
-## Hi there 👋
+
+![BigJ](https://github.com/user-attachments/assets/cf78f76a-26ba-44c1-a0db-0160725784ce)
+![ColossalApe](https://github.com/user-attachments/assets/12f76fb9-5d44-4ac3-a285-833b1703f6bf)
+![idkcopy](https://github.com/user-attachments/assets/39c3c17b-504c-4a75-95e1-df0cb20665b0)
 
 <!--
 **Sguinther/Sguinther** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
