@@ -2,7 +2,8 @@
 
 ![BigJ](https://github.com/user-attachments/assets/cf78f76a-26ba-44c1-a0db-0160725784ce)
 
-![sassmate](https://github.com/user-attachments/assets/5249bbe9-af63-4fed-844e-a9351a9379bc)
+![campfire](https://github.com/user-attachments/assets/2780569f-3c51-4107-b36b-9aeaa9ee4a45)
+
 
 <!--
 **Sguinther/Sguinther** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
