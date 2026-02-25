@@ -1,6 +1,7 @@
 ![bigGif](https://github.com/user-attachments/assets/093316a7-2ca9-496a-b671-db87cf7ed9cf)
 ![campfire](https://github.com/user-attachments/assets/2780569f-3c51-4107-b36b-9aeaa9ee4a45)
 ![UFO](https://github.com/user-attachments/assets/b9ab5c9b-e0e9-4b5a-aca1-c105f56b7f39)
+![Lasagna](https://github.com/user-attachments/assets/4543f21a-0684-401c-a636-1be4a22fee8f)
 ![apewalk2](https://github.com/user-attachments/assets/0b3ad1d7-19b4-4254-b258-11d506e19bb2)
 
 
